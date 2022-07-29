@@ -1,1 +1,0 @@
-# glycyrrhizaivan.github.io
